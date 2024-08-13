@@ -12,3 +12,5 @@ programação e design.
 😄 Pronomes: ela/dela.
 
 ⚡ Fato divertido: adoro café e sempre busco as melhores cafeterias da cidade!
+
+![](https://media1.tenor.com/m/1SDTHgTkXP4AAAAd/vae.gif)
