@@ -1,4 +1,4 @@
-👋 Oi, eu sou @myrinha
+👋 Oiie, eu sou @myrinha
 
 👀 Estou interessada em tecnologia, 
 programação e design.
